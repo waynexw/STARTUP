@@ -1,2 +1,2 @@
 # Startup Projects
-inspeired consideration
+inspeired ideas
